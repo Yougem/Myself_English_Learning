@@ -9,3 +9,14 @@
 traffic offenses 交通违规
 criminal offenses 刑事犯罪，违法犯罪
 Theft offenses 偷窃犯罪
+
+https://www.douban.com/note/644469475/?_i=1418552VCp4UAy
+Husstle
+1偷窃 
+2卖春 
+3以不道德的手段赚钱 
+4乞食 
+
+hustler 指女性时， 就成为“娼妇”，男人就成为“用不道德的手段赚钱的人”。 
+BG代表business girl 类似hustler让人误解，创造OL(office lady)以示区别。 
+B-girl是Bar-girl的简称 （低级酒吧让好色的男人请她们喝酒，然后向酒吧拿rebate。）
